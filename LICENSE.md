@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip MEV Bot for sandwich attack bot | arbitrage-opportunities & low-cap-gem-detection, the #1 sandwich attack bot. Includes arbitrage-opportunities and
 
 
 
